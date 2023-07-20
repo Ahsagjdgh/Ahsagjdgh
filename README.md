@@ -1,0 +1,2 @@
+The Inksters is absolutely about brand-building. We are a self-assured and close-knitted bunch keeping an eye on the pulse of change, continually combining modern technology with unique marketing strategies. From 2015, the company has knocked out many top-notch market giants and proved to be a ‘Power House’, making itself a leader in innovative and creative marketing strategies.
+https://www.theinksters.net
